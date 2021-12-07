@@ -13,5 +13,4 @@
 
 
 # **加群一起仲裁！**
-
-![371638876583_ pic](https://user-images.githubusercontent.com/95394907/145021592-5effc008-7b85-4ed4-b58c-8f2e1a03dc0f.jpg)
+<img src="https://user-images.githubusercontent.com/95394907/145021592-5effc008-7b85-4ed4-b58c-8f2e1a03dc0f.jpg" width="350" alt="微信小程序"/><br/>
