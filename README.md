@@ -3,7 +3,7 @@
 # **还钱！！！**
 
 # **加群一起仲裁！二维码21/12/28更新**
-<img src="https://user-images.githubusercontent.com/95394907/147522393-6ec81606-d0f1-4a29-bca5-f6743468f092.jpg" width="350" alt="微信小程序"/><br/>
+<img src="https://user-images.githubusercontent.com/95394907/150053477-9b28b3c5-a05c-4eea-9fe2-4435ad45ca1b.png" width="350" alt="微信小程序"/><br/>
 
 
 ## 至今一切社会的历史都是阶级斗争的历史，自由民和奴隶、贵族和平民、资本家和打工人。
