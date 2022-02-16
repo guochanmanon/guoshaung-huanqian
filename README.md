@@ -3,7 +3,7 @@
 # **还钱！！！**
 
 # **加群一起仲裁！二维码21/12/28更新**
-<img src="https://user-images.githubusercontent.com/95394907/150053477-9b28b3c5-a05c-4eea-9fe2-4435ad45ca1b.png" width="350" alt="微信小程序"/><br/>
+<img src="https://user-images.githubusercontent.com/95394907/154228807-eff8c199-f7b9-4b75-9dff-98019f1cb838.png" width="350" alt="微信小程序"/><br/>
 
 
 ## 至今一切社会的历史都是阶级斗争的历史，自由民和奴隶、贵族和平民、资本家和打工人。
@@ -14,5 +14,4 @@
 ## 我们打工人不屑于隐瞒自己的观点和意图。现在我们公开宣布：国双-还钱！
 
 # **全世界打工人，联合起来！**
-
 
